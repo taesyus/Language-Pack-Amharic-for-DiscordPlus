@@ -1,0 +1,1 @@
+# Language-Pack-Amharic-for-DiscordPlus
